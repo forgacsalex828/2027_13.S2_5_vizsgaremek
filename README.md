@@ -31,4 +31,4 @@ A vizsgaremekhez tartozó dokumentumok:
 
 ---
 
-**2027 | 13.S2 | Nivo Étterem – Vizsgaremek**
+**2027 | 13.S2 |5 Team |Nivo Étterem – Vizsgaremek**
